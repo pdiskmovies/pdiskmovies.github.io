@@ -1,0 +1,30 @@
+---
+id: 2444
+title: Hera Pheri (2000) watch download pdisk full movie
+date: 2021-10-16T05:06:44+00:00
+author: tentrockers
+layout: post
+guid: https://tentrockers.online/hera-pheri-2000-watch-download-pdisk-full-movie/
+permalink: /hera-pheri-2000-watch-download-pdisk-full-movie/
+cyberseo_rss_source:
+  - 'https://www.pdiskmovies.net/feeds/posts/default?max-results=100&start-index=201'
+cyberseo_post_link:
+  - https://www.pdiskmovies.net/2021/09/hera-pheri-2000-watch-download-pdisk.html
+categories:
+  - Uncategorized
+---
+<span><span>&nbsp;The film starts with Ghanshyam &#8220;Shyam&#8221; Tripathi (Suniel Shetty), a person looking for a task at a bank. He couldn&#8217;t land the position notwithstanding his late dad who worked there. At some point, he inadvertently chances upon a person named Rajesh &#8220;Raju&#8221; Rathod (Akshay Kumar). Shyam botches Raju for a pickpocket and starts to pursue him. Notwithstanding, he finds reality and the inverse happens when Raju pursues Shyam in the wake of mixing up him to be a pickpocket. Raju experiences his own difficulties, managing his fantasies and unpleasant individuals he is working for. He can&#8217;t keep a task and subsequently deals with numerous issues. </span></span>
+
+<span><span>Shyam then, at that point, moves toward a carport claimed by a man named Baburao Ganpatrao Apte (Paresh Rawal) and figures out how to get a room on lease by thinking twice about the sum for Baburao&#8217;s liquor. Unbeknownst to him, Raju is remaining in a similar house on lease, which he hasn&#8217;t paid throughout the previous two years. The threesome falls into comical circumstances that generally include Raju impelling Shyam and purposefully attempting to cause an uproar that Baburao, affectionately called as Babu Bhaiya, needs to determine. During one such battle, a young lady named Anuradha (Tabu) shows up and attempts to convince Shyam to sign the Non-Objection Certificate, so she could have the work at the bank. At the point when Shyam rejects, Raju hatches a plot to make him sign the papers. Shyam ultimately discovers that Raju deceitfully made him sign the papers and that is the point at which the competition between the two begins. An old companion of Shyam, Khadak Singh (Om Puri), goes to his place requesting to return his cash which Shyam took from Singh as a credit. Khadak Singh requests that Shyam repay the credit quickly or, more than likely his sister&#8217;s marriage would not occur. </span></span>
+
+<span><span>Shyam discovers that Raju has been beguiling his mom by acting like an architect. Anuradha readies a task abdication in the mean time and offers it to Shyam, who consequently destroys this is a result of her deranged mother and the helpless states of her home. Later he stands up to Raju who uncovers that he needs to see his mom cheerful. </span></span>
+
+<span><span>Their life takes a startling turn when they get a call from Kabeera (Gulshan Grover) which is an off-base number really implied for the proprietor of Star Fisheries, Mr. Deviprasad Mukherjee (Kulbhushan Kharbanda). Some unacceptable number is a result of the misprint in the telephone registry, which renders Star Fisheries&#8217; number as Star Garage&#8217;s as well as the other way around. Kabeera, a psychological oppressor and criminal, believing that it is Deviprasad, discloses to him that his granddaughter Rinku is abducted and requests a payment. Listening in on the whole discussion going among Kabeera and Shyam, Raju chooses to play a game. </span></span>
+
+<span><span>The game includes Shyam calling Deviprasad acting like the hijacker and requesting twofold the payoff sum, which will tackle their money related issues. Shyam and Baburao at first repulse the thought, however they at long last give in when Raju persuades them that despite the fact that it&#8217;s off-base, this is a brilliant opportunity to bring in cash and furthermore to save a daily existence. They call the genuine Deviprasad and request twofold payoff. On their first endeavor they wear caps as a camouflage yet their endeavor gets thwarted by the police lead by the Sub-Inspector Prakash (Mukesh Khanna) (called furtively by Deviprasad&#8217;s worker (Mushtaq Khan)). Kabeera later advises them that the payoff has been multiplied. They call Deviprasad again and request an idiot proof twofold payoff. </span></span>
+
+<span><span>On their subsequent endeavor, they wear Zorro outfits to conceal their characters. Notwithstanding, they uncover themselves to Deviprasad to win his certainty and attempt to save Rinku from the criminals. Be that as it may, she perceives Shyam as a fraud and Kabeera gets alarmed. An enormous battle including the police, Kabeera&#8217;s gangsters, and Khadak and his men, maddened by the postponement in returning the cash, happens. Rinku is saved by the threesome and got back to Deviprasad. Baburao and Shyam return home joyfully proposing to discover Raju with the cash, yet they think that he is absent. Expecting that he has swindled them, they call the police to admit the wrongdoing. In any case, Raju returns and uncovers that he had gone uniquely to return the cash of the banks. The police show up and, seeing the cash, capture the triplet. </span></span>
+
+<span><span>Eventually, Deviprasad acts the hero and persuades the police that it was each of the a misconception and recoveries the three and they return home, more extravagant than at any other time. The film closes with the triplet getting a trick call from Deviprasad&#8217;s granddaughter Rinku.</span></span>
+
+[![](https://1.bp.blogspot.com/-a93bp85aB6g/YUXjACCiX3I/AAAAAAAAbQE/GHmPI7h0af0tqn6tYzd0cdrDv9Hu9LUSACLcBGAsYHQ/s16000/Play_it_New-removebg-preview.png "Pdisk Movies - Play Download links and earn the biggest money")](https://pdisklink.com/1/bnYybHdsMDAyeWtx?dn=1)
